@@ -207,4 +207,4 @@ iDrum is offered as the full free version, with all features and updates include
 Don't miss out on the opportunity to elevate your music production game. **Download iDrum today and start creating your own unique rhythms!**
 
 ---
-**Last updated:** 2026-09-17 23:57:26 UTC
+**Last updated:** 2026-09-18 04:27:31 UTC
